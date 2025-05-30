@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... anything that has to do with catching and exposing online predators 
 - 📫 How to reach me ... jlpamp4ohf@gmail.com 
 - 😄 Pronouns: ... King and Priest 
-- ⚡ Fun fact: ... nothing's fun anymore when bad people have shattered your life & systems put in place to help have completely and utterly failed....time to do some outlaw shit!!!
+- ⚡ Fun fact: ... nothing's fun anymore when bad people have shattered your life & systems put in place to help have completely and utterly failed....time to do some outlaw shit!!!!
 
 <!---
 EAOUITTDOS/EAOUITTDOS is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
